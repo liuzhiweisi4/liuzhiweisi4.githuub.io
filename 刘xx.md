@@ -1,4 +1,6 @@
-刘xx，男，中国黑龙江山东，犯罪记录（群发推广网络赌博，参与网络赌博运营，赢博盘口，合赢盘口，印度盘口777wealth负责人）
+刘秩葳，男，中国黑龙江山东人
+群发推广网络赌博，参与网络赌博运营，赢博盘口，合赢盘口，印度盘口777wealth负责人
+
 
 
 
@@ -50,3 +52,9 @@ https://github.com/liuzhiweisi4/liuzhiweisi4.githuub.io/blob/main/2.20%E5%B3%B0%
 ![](image_30878.png)
 
 
+
+
+![](image_27068.png)
+![](image_28362.png)
+![](image_39826.png)
+![](image_61678.png)
