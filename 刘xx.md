@@ -35,3 +35,6 @@
 ![](Capture2.PNG)
 
 ![](Capture3.PNG)
+
+数据信息
+https://github.com/liuzhiweisi4/liuzhiweisi4.githuub.io/blob/main/2.20%E5%B3%B0%E5%93%A5%E8%81%94%E9%80%9A_%E7%AC%AC2%E6%89%B9_38700.txt
