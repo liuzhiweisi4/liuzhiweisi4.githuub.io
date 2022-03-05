@@ -6,32 +6,32 @@
 
 ![]()
 
-![image-20220305191202813](C:\Users\Administrator\Desktop\images\image-20220305191202813.png)
+![image-20220305191202813](image-20220305191202813.png)
 
 部分犯罪信息
 
-![](C:\Users\Administrator\Desktop\images\4.PNG)
+![](4.PNG)
 
 
 
-![](C:\Users\Administrator\Desktop\images\5.PNG)
+![](5.PNG)
 
 
 
 
 
-![](C:\Users\Administrator\Desktop\images\6.PNG)
+![](6.PNG)
 
-![](C:\Users\Administrator\Desktop\images\7.PNG)
+![](7.PNG)
 
-![](C:\Users\Administrator\Desktop\images\8.PNG)
+![](8.PNG)
 
-![](C:\Users\Administrator\Desktop\images\9.PNG)
+![](9.PNG)
 
-![](C:\Users\Administrator\Desktop\images\10.PNG)
+![](10.PNG)
 
-![](C:\Users\Administrator\Desktop\images\Capture.PNG)
+![](Capture.PNG)
 
-![](C:\Users\Administrator\Desktop\images\Capture2.PNG)
+![](Capture2.PNG)
 
-![](C:\Users\Administrator\Desktop\images\Capture3.PNG)
+![](Capture3.PNG)
